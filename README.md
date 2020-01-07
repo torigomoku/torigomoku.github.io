@@ -1,0 +1,1 @@
+# torigomoku.github.io
